@@ -1,0 +1,1 @@
+# 23CE050_Responsible_And_Safe_AI
